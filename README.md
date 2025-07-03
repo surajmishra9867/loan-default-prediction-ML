@@ -60,5 +60,9 @@ Financial institutions face challenges in identifying which customers are most l
 
 If you'd like to discuss this project or explore potential collaborations, feel free to reach out!
 
+**Suraj Mishra**  
+Email: surajmishra9867@gmail.com  
+LinkedIn: [linkedin.com/in/surajmishra9867](https://www.linkedin.com/in/surajmishra9867)
+
 ---
 
